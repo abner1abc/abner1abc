@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @abner1abc
-- 👀 I’m interested in all culture of programation and i love this -.
+- 👀 I’m interested about all culture of the programation and i love this (this is my dream) :)
